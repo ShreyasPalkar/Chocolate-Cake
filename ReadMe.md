@@ -1,0 +1,1 @@
+Everyone likes chocolate cake! If you like simple recipes, or are short of time, why not make a simple chocolate cake? It's delicious, easy to make, and takes less than an hour from start to finish.
